@@ -1,4 +1,4 @@
-### Privet, menya zovut chandrakanth 👋
+### Hey folks i am chandrakanth 👋
 
 - 🔭 I’m currently working on Learning
 - 🌱 I’m currently learning New things
